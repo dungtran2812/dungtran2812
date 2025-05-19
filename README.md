@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @dungtran2812
 - 🌱 I’m currently learning in FPT University
-
+- My career: https://drive.google.com/drive/folders/18Yn7R1ibZ-vno_VqWGSq0PBkToW2Vjnh?usp=sharing
